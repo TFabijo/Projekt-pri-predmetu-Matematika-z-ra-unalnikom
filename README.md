@@ -1,1 +1,1 @@
-# Projekt-pri-predmetu-Matematika-z-ra-unalnikom
+# Projekt-pri-predmetu-Matematika-z-računalnikom
